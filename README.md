@@ -29,7 +29,7 @@ Siempre estoy buscando nuevas oportunidades de aprendizaje y me considero un aut
 
 Puedes encontrarme en las redes sociales:
 
-- [:link: LinkedIn](enlace_a_tu_perfil_de_LinkedIn)
+- [:link: LinkedIn](https://www.linkedin.com/in/jonnathan-garc%C3%ADa-loria-07815b298/)
 
 ## :mortar_board: Aprendizaje Continuo
 
